@@ -1,2 +1,2 @@
-readme read hu
+readme read hul
 
