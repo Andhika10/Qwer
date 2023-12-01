@@ -1,2 +1,2 @@
-readme read hulk red
+readme read hulk reds
 
