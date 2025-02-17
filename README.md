@@ -1,2 +1,2 @@
-readme read hulk reds wh
+readme read hulk reds why
 
